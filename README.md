@@ -1,2 +1,2 @@
 Link do vídeo:
-https://studio.youtube.com/video/LoOQGUvX0Rc/edit
+https://www.youtube.com/watch?v=LoOQGUvX0Rc
